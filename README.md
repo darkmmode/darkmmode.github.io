@@ -1,1 +1,1 @@
-[click here for the real deal](darkmmode.github.io/Home.html)
+full website - http://darkness.0x.no
