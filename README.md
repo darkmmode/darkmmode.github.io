@@ -1,1 +1,1 @@
-full website - http://darkness.0x.no
+https://darks-cafe.pages.dev
